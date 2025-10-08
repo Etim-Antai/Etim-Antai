@@ -20,7 +20,7 @@
 ## 📫 How to reach me
 - 🌐 **LinkedIn:** [Etim Antai](https://www.linkedin.com/in/etim-antai-a59328198/)  
 - 🐦 **X (Twitter):** [@Antai_Rabbi](https://x.com/Antai_Rabbi)  
-- 📘 **Facebook:** [Etim Antai] https://www.facebook.com/etim.antai.2025 
+- 📘 **Facebook:** : https://www.facebook.com/share/17Z1Q2NB3Y/ 
 - ✉️ **Email:** [etymantai@gmail.com](mailto:etymantai@gmail.com)  
 
 😄 **Pronouns:** He/Him  
